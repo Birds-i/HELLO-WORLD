@@ -1,2 +1,6 @@
 # HELLO-WORLD
 PROJECT TO CHANGE AFGHANISTAN - COUNTRY WIDE BLOCK CHAIN
+
+Join us on Discord 
+https://discord.gg/QXWZbm7
+
